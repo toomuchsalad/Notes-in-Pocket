@@ -71,4 +71,4 @@ You hereby agree to indemnify, defend, and hold harmless Notes in Pocket, its em
 
 ## CONTACT
 
-If you have any questions or comments about this Privacy Policy, or any other issues regarding our apps or services, please contact us at notesinpocket@mail.ru
+If you have any questions or comments about this Terms of Service, or any other issues regarding our apps or services, please contact us at notesinpocket@mail.ru
